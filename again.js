@@ -1,1 +1,1 @@
-I have no idea what I have to here eithet
+I have no idea what I have to here eitheR.
